@@ -1,2 +1,2 @@
 # Privacy-Policy
-Privacy Policy for the Monday.com app "Multi-Level Board Status Dependencies"
+Privacy Policy & Pricing for the Monday.com app "Multi-Level Board Status Dependencies"
